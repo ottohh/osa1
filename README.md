@@ -1,0 +1,1 @@
+# osa1 FULL STACK OPEN 
